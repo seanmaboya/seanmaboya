@@ -1,0 +1,4 @@
+- 👋 Greetings, I am the leader of fourteenth generation cult of diaz 
+- 👀 I’m interested in knowing the unknown about the occultic knowledge 
+- 🌱 I’m currently learning esoteric etymology
+- 💞️ I’m looking to collaborate on all things esoteric
